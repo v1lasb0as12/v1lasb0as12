@@ -1,0 +1,11 @@
+- # EDUTECH
+- ## colegio estadual sagrada familia 
+- ### lucas vilas boas
+- ola, meu esername é v1lasb0as12
+- meu E-mail é lucas.luciano.silva@escola.pr.gov.br
+- games 
+ - meu instagran é lucas vilas boas luciano 
+ - eu amo o manga larga marchador
+- messi é melhor q CR7 KKKK.
+- por cima de mim é só DEUS e avião 
+- professor Alex informatica 
